@@ -1,6 +1,10 @@
 # digital-ids
 hey
-- aime digital ids real or fake
+- aime pas digital ids real or fake
+- aime aucun digital ids
+- aime quelques trycs dans le  digital ids
+- arreter le digital ids
+  - sans le digital ids
 - - digital ids are reakl fake
   - you can sens sms, email, voice calls
   - you can edit the digital ids , create update posts on facebook,(not delete)
