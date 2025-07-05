@@ -1,6 +1,7 @@
 # digital-ids
 hey
 - aime pas digital ids real or fake
+- digital ids are not serious
 - aime aucun digital ids
 - aime quelques trycs dans le  digital ids
 - arreter le digital ids
